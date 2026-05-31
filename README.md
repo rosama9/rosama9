@@ -66,3 +66,5 @@ I focus on:
 
 - Website: [ByteReck](https://www.bytereck.com)
 - LinkedIn: [Rana Muhammad Osama](https://www.linkedin.com/in/rana-muhammad-osama-401465b4/)
+- Leadexa: [ByteReck](https://leadexa.ai)
+- Inquiries: [Rana Muhammad Osama](https://app.leadexa.ai/f/hf_THMr9mB27A5icDNg)
